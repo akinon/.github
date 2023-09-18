@@ -1,3 +1,6 @@
+![header](https://github.com/akinon/.github/assets/107171507/e3f3e326-d8d0-4c73-9bf3-fe6570ec42aa)
+
+
 # Unfold the Future of Digital Commerce. Dive Into This New World!
 
 Hello! Welcome! We're delighted that you've come across Akinon. Akinon is one of the shining stars of the digital commerce, and we're here to make that star shine even brighter. Here, you'll be part of not just a company, but a Akinonians.
