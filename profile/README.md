@@ -23,18 +23,18 @@ Come on, join this adventure and let's change the world together!
 
 ### Akinon
 
-Website
+[Website](https://akinon.com)
 
-Akinon IG
+[Akinon IG](https://www.instagram.com/akinon.official/)
 
-Blog
+[Blog](https://akinon.com/resource-center/)
 
-Platform
+[Platform](https://akinon.com/how-our-platform-works/)
 
 ### The æX
 
-The æX Website
+[The æX Website](https://akinonexperience.com/)
 
-The æX IG
+[The æX IG](https://www.instagram.com/akinon_experience/)
 
-Youtube
+[Youtube](https://www.youtube.com/@akinon.official/featured)
